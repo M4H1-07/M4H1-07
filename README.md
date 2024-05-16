@@ -4,7 +4,7 @@
 ## MAHI SINGH            
 ( I N D I A 🇮🇳 )👋  <img src="https://github.com/M4H1-07/OPEN-SOURCE-/blob/main/63d06737e6ea09a8a12a101fb2688c94.jpg" width="24px">
 
-<p align="center"><a href="https://github.com/MAHI-SINGH"><img src="https://j.top4top.io/p_1966skgw80.jpg" height='195' alt="UP QUEEN">
+<p align="center"><a href="https://github.com/MAHI-SINGH"><img src="https://github.com/M4H1-07/OPEN-SOURCE-/blob/main/63d06737e6ea09a8a12a101fb2688c94.jpg" height='195' alt="UP QUEEN">
 <p align="center"><a href="https://wa.me/17087220306"><img title="whatsapp" src="https://img.shields.io/badge/Whatsapp-black?style=for-the-badge&logo=whatsapp"></a>
 <img src="https://github.com/MAHI-07/blob/main/md7Oqrf.gif " width="300%"> 
 <p align="center">
